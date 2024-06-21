@@ -1,6 +1,6 @@
 Hi
  Bonda...
-this is personel git and i have a message..
+this is my personal git and i have a message..
 
 
 i have been missing our usual stupid talks at office......
