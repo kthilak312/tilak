@@ -1,1 +1,1 @@
-hate you di bonda naiya
+hate you di bonda
